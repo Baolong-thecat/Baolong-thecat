@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning code by myself
 - 💞️ I’m looking to collaborate on everyone
-- 📫 How to reach me by my email
+- 📫 How to reach me by my email or my number phone
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
